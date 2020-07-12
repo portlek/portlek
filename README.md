@@ -1,1 +1,1 @@
-### I love making open source projects that help onle me 😄
+### I love making open source projects that help only me 😄
